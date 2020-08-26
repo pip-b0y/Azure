@@ -1,0 +1,1 @@
+I do like messing with different technologies. Here you might find some projects and some thinking projects i have built either exploring things or trying to build a new project
